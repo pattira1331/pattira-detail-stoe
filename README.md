@@ -1,0 +1,1 @@
+# pattira-detail-stoe
